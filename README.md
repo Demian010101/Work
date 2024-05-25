@@ -1,2 +1,2 @@
 # <center> Проект: Анализ резюме из HeadHunter  
-https://drive.google.com/file/d/1YzxXhQYXQOMF-x8OskvPdw2F6BmHtLnm/view?usp=sharing
+https://drive.google.com/file/d/1Zbdrp4rIwKA15rY4458JIl9htE77omOm/view?usp=drive_link
